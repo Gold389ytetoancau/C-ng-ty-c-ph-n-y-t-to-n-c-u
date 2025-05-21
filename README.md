@@ -1,2 +1,2 @@
-# C-ng-ty-c-ph-n-y-t-to-n-c-u
+# cong-ty-co-phan-y-te-toan-cau
 https://gold389.vn/
